@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Rodolfo Miranda 😁
+## Bem-vindo(a) ao perfil do Rodolfo Miranda
 
  <div>
    <a href="https://github.com/RodolfoMiranda91">
